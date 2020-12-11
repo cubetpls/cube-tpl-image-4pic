@@ -1,0 +1,1 @@
+# cube-tpl-image-4pic
